@@ -1,1 +1,1 @@
-# power-rosa-ranger
+# power-sosa-ranger
